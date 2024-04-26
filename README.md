@@ -24,15 +24,11 @@ If you need any help regarding College project contact me. #Free_Discussion
 
 ### Contact me:
 
-WhatsApp: +91 9310631437 (Helping 24*7)
+WhatsApp: 0424772599
 
-Gmail: vatshayan007@gmail.com
+Gmail: Bhargav Banoth
 
- #Free_Discussion 
  
- #open_source 
  
- #free_explanation
- 
-### Advance Road Pavement Project Youtube Video : https://www.youtube.com/watch?v=BEUFt6_UjYM
+
 
